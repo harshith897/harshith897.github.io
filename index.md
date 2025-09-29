@@ -3,7 +3,7 @@
 📍 Vellore Institute of Technology (VIT), India  
 🎓 B.Tech – Mechatronics & Automation (2023–2027)  
 📧 harshithreddy.g2023@vitstudent.ac.in  
-🌐 [GitHub](https://github.com/harshith897) | [LinkedIn](www.linkedin.com/in/harshith-reddy-0996552b3)
+🌐 [GitHub](https://github.com/harshith897) | [LinkedIn](https://www.linkedin.com/in/harshith-reddy-0996552b3/)
 
 ---
 
